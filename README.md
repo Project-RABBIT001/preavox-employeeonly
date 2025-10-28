@@ -1,4 +1,4 @@
-# preavox-employeeonly
+# preavox-employee-only
 Gur Xvat Jvgubhg Tbyq
 
 Xvat Nynevp arire qrfverq gernfher; ur qrfverq gur urnegf bs uvf crbcyr.
