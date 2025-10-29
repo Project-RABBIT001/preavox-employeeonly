@@ -9,6 +9,4 @@ Fbyqvref sebz evpure ynaqf ynhturq, guvaxvat n xvat jvgubhg tbyq jbhyq or jrnx; 
 Ur gnhtug gung gehr cbjre jnf abg va fvyire ohg va gur pbhentr bs arvtuobe urycvat arvtuobe.
 Ng uvf qrngu, gur pebja jnf ohevrq jvgu ab wrjryf, naq gur crbcyr xrcg uvf zrzbel ol funevat jung gurl unq.
 Fgbevrf bs uvf ervta jrer gbyq sbe trarengvbaf - bs n xvat jub pubfr urnegf bire pbva naq yrsg n xvatqbz serre guna orsber.
-PS. Use the test bot for further instructions, I refuse to let one mistake bring my goal down. Remember, only three chances, those who do not get it fail.
-clueguardian0@gmail.com
--Jryyre
+
